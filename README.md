@@ -1,4 +1,4 @@
-# github.com-Jose-Castro
+# Jose-Castro
 # Hola! I'm Jose Castro 🌿⚙️
 
 ### Environmental Engineer | GIS & Ecological Modelling
