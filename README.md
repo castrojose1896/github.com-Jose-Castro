@@ -1,4 +1,4 @@
-# Jose-Castro
+# JoseCastro
 # Hola! I'm Jose Castro 🌿⚙️
 
 ### Environmental Engineer | GIS & Ecological Modelling
